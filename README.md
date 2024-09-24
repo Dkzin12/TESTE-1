@@ -7,11 +7,15 @@
  #### Hobbies
  > :video_game:Jogar Games:video_game:                                                ⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀
+
  > :game_die:RPG:game_die:
+
  
  > 😴Dormir🛌
+
  
  > 📚Ler📖      
+
  
  > :musical_note:Ouvir Música🎼
 
